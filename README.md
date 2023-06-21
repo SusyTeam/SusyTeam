@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mr N
+- 👀 I’m interested in Teaching
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on cool projects
+- 📫 How to reach me: Discord:Ohio666
